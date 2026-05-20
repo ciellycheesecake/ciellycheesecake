@@ -13,6 +13,8 @@
 
 Main fandoms: DR, PJ:EG, FRIEREN, TADC, KNY
 
+Multishipper!
+
 For friends I know irl pls dont EVER use my irl name unless we're whispering
 
 Im either offt, s-afk or js cuddling with my friends so so don't be afraid to whisper
@@ -27,3 +29,6 @@ https://meciel.straw.page
 
 https://ciellycake.atabook.org
 
+<img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/dd7391ddd5d4ab015299d4bfa94ff36a38fa3b0d/tumblr_24d30ead9da1404cd00019396bfceefe_36b9b452_400.webp" width="670">
+
+### ᓚ₍^..^₎♡
