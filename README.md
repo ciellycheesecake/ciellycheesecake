@@ -1,29 +1,29 @@
-### ₍^. .^₎⟆
+## ₍^. .^₎⟆
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/9f810b9d2b4a0ba3310523609ce53a2670540e22/tumblr_240ac67f88d76b6ec7afc1072d647cff_005a98ed_400.webp" width="670">
 
- Ciel/Cielly/Cici
+ *Ciel/Cielly/Cici*
   
- prefer Ciel more
+ *prefer Ciel more*
   
-  She/Her
+  *She/Her*
 
-  E/INFP
+  *E/INFP*
   
- !MINOR!
+ *!MINOR!*
 
   <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/14f9d35f4a53d6e5528c8e98418ee87fcdfdcf47/tumblr_965b27135f5ebbeb470c0cec56428815_4603b59a_75.webp" width="67">
 
-Main fandoms: DR, PJ:EG, FRIEREN, TADC, KNY
+*Main fandoms: DR, PJ:EG, FRIEREN, TADC, KNY*
 
-Multishipper!
+*Multishipper!*
 
-For friends I know irl pls dont EVER use my irl name unless we're whispering
+*For friends I know irl pls dont EVER use my irl name unless we're whispering*
 
-Im either offt, s-afk or js cuddling with my friends so so don't be afraid to whisper
+*Im either offt, s-afk or js cuddling with my friends so don't be afraid to whisper*
 
-You may ask for my discord
+*You may ask for my discord*
 
-Do not give my disc user without permission
+*Do not give my disc user without permission*
 
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/d06363e3f1b6cde345d1f9fdb9d1e6a22afefea5/tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.webp" width="67">
 
@@ -33,4 +33,4 @@ https://ciellycake.atabook.org
 
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/dd7391ddd5d4ab015299d4bfa94ff36a38fa3b0d/tumblr_24d30ead9da1404cd00019396bfceefe_36b9b452_400.webp" width="670">
 
-### ᓚ₍^..^₎♡
+## ᓚ₍^..^₎♡
