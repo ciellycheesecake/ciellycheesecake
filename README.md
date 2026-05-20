@@ -1,6 +1,8 @@
 # ₍^. .^₎⟆
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/9f810b9d2b4a0ba3310523609ce53a2670540e22/tumblr_240ac67f88d76b6ec7afc1072d647cff_005a98ed_400.webp" width="670">
 
+## $\color{#a7cbd1}{\textsf{Me ༉‧₊˚.}}$
+
  *Ciel/Cielly/Cici*
   
  *prefer Ciel more*
@@ -12,6 +14,8 @@
  *!MINOR!*
 
   <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/14f9d35f4a53d6e5528c8e98418ee87fcdfdcf47/tumblr_965b27135f5ebbeb470c0cec56428815_4603b59a_75.webp" width="67">
+
+  ## $\color{#a7cbd1}{\textsf{Info ༉‧₊˚.}}$
 
 *Main fandoms: DR, PJ:EG, FRIEREN, TADC, KNY*
 
@@ -26,6 +30,8 @@
 *Do not give my disc user without permission*
 
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/d06363e3f1b6cde345d1f9fdb9d1e6a22afefea5/tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.webp" width="67">
+
+## $\color{#a7cbd1}{\textsf{Links ༉‧₊˚.}}$
 
 *More stuff on my strawpage⬇⬇⬇*
 
