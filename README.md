@@ -1,4 +1,4 @@
-## ₍^. .^₎⟆
+# ₍^. .^₎⟆
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/9f810b9d2b4a0ba3310523609ce53a2670540e22/tumblr_240ac67f88d76b6ec7afc1072d647cff_005a98ed_400.webp" width="670">
 
  *Ciel/Cielly/Cici*
@@ -27,10 +27,14 @@
 
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/d06363e3f1b6cde345d1f9fdb9d1e6a22afefea5/tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.webp" width="67">
 
+*More stuff on my strawpage⬇⬇⬇*
+
 https://meciel.straw.page
+
+*Leave a msg!⬇⬇⬇*
 
 https://ciellycake.atabook.org
 
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/dd7391ddd5d4ab015299d4bfa94ff36a38fa3b0d/tumblr_24d30ead9da1404cd00019396bfceefe_36b9b452_400.webp" width="670">
 
-## ᓚ₍^..^₎♡
+# ᓚ₍^..^₎♡
