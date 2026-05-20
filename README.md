@@ -6,6 +6,8 @@
  prefer Ciel more
   
   She/Her
+
+  E/INFP
   
  !MINOR!
 
