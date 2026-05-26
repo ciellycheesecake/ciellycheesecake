@@ -25,9 +25,9 @@
 
 *Im either offt, s-afk or js cuddling with my friends so don't be afraid to whisper*
 
-*You may ask for my discord*
+*You may ask for my discord and roblox*
 
-*Do not give my disc user without permission*
+*Do not give my disc and rblx user without permission*
 
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/d06363e3f1b6cde345d1f9fdb9d1e6a22afefea5/tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.webp" width="67">
 
