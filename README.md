@@ -25,7 +25,7 @@
 
 *I do not accept random friend reqs, pls get to know me b4 doing so*
 
-*I'm sensitive, please be mindful of that. My mood can change quickly, IWC is usually stated.*
+*I'm sensitive, please be mindful of that. My mood can change a lot, IWC is usually stated.*
 
 *no I do NOT online date. Someone randomly flirted with me Im not dealing with that again*
 
