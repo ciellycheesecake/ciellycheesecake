@@ -27,7 +27,7 @@
 
 *I'm sensitive, please be mindful of that. My mood can change a lot, IWC is usually stated.*
 
-*no I do NOT online date. Someone randomly flirted with me Im not dealing with that again*
+*No I do NOT online date. Someone randomly flirted with me Im not dealing with that again*
 
 *For friends I know irl pls dont EVER use my irl name unless we're whispering*
 
