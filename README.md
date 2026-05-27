@@ -21,6 +21,14 @@
 
 *Multishipper!*
 
+*Ragatha & Mitsuri kinnie*
+
+*I do not accept random friend reqs, pls get to know me b4 doing so*
+
+*I'm sensitive, please be mindful of that and use tone tags. My mood can change quickly, IWC is usually stated.*
+
+*no I do NOT online date. Istg someone randomly flirted with me Im not dealing with that shit again*
+
 *For friends I know irl pls dont EVER use my irl name unless we're whispering*
 
 *Im either offt, s-afk or js cuddling with my friends so don't be afraid to whisper*
