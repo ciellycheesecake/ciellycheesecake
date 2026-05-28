@@ -58,4 +58,4 @@ https://ciellycake.atabook.org
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/dd7391ddd5d4ab015299d4bfa94ff36a38fa3b0d/tumblr_24d30ead9da1404cd00019396bfceefe_36b9b452_400.webp" width="670">
 
 # ᓚ₍^..^₎♡
-![](https://komarev.com/ghpvc/?username=ciellycheesecake&color=a7cbd1&label=(⊃｡•́‿•̀｡)⊃)
+![](https://komarev.com/ghpvc/?username=ciellycheesecake&color=a7cbd1&label=(⊃｡•́‿•̀｡)⊃&basenumber=18)
