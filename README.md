@@ -5,7 +5,7 @@
 
  *Ciel/Cielly/Cici*
   
- *prefer Ciel more*
+ *Ciel preferred*
   
   *She/Her*
 
