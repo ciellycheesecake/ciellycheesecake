@@ -17,7 +17,7 @@
 
   ## $\color{#a7cbd1}{\textsf{Info ༉‧₊˚.}}$
 
-*Main fandoms: DR, PJ:EG, FRIEREN, TADC, KNY*
+*Main fandoms: DANGANRONPA, PJ:EG, FRIEREN, TADC, KNY*
 
 *Multishipper!*
 
