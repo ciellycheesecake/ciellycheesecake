@@ -39,7 +39,11 @@
 
 ## $\color{#a7cbd1}{\textsf{Links ༉‧₊˚.}}$
 
-*More stuff on my strawpage⬇⬇⬇*
+*More stuff on my new strawpage⬇⬇⬇*
+
+https://zereciel.straw.page
+
+*Old strawpage!!⬇⬇⬇*
 
 https://meciel.straw.page
 
