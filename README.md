@@ -17,7 +17,7 @@
 
   ## $\color{#a7cbd1}{\textsf{Info ༉‧₊˚.}}$
 
-*Main fandoms: DANGANRONPA, PJ:EG, HETALIA, TADC, KNY, DDLC*
+*Main fandoms: DANGANRONPA, KNY, DDLC*
 
 *Multishipper!*
 
