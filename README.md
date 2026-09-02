@@ -9,7 +9,7 @@
   
   *She/Her*
 
-  *E/INFP*
+  *E-INFP*
   
  *!MINOR!*
 
