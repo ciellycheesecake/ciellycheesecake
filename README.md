@@ -10,6 +10,8 @@
   *She/Her*
 
   *E-INFP*
+
+  *sp946*
   
  *!MINOR!*
 
