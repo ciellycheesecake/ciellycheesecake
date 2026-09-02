@@ -9,9 +9,9 @@
   
   *She/Her*
 
-  *E-INFP*
-
   *sp964*
+
+  *E-INFP*
   
  *!MINOR!*
 
