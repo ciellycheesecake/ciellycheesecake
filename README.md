@@ -25,7 +25,7 @@
 
 *Ragatha & Mitsuri kinnie*
 
-*I do not accept random friend reqs, pls get to know me b4 doing so*
+*I do not accept random friend reqs, pls interact and get to know me b4 doing so*
 
 *I'm sensitive, please be mindful of that. My mood can change a lot, IWC is usually stated.*
 
