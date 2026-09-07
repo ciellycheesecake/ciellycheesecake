@@ -9,7 +9,7 @@
   
   *She/Her*
 
-  *sp964*
+  *sp926*
 
   *E-INFP*
   
