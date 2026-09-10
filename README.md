@@ -27,6 +27,8 @@
 
 *I do not accept random friend reqs, pls interact and get to know me b4 doing so*
 
+*Pls do NOT copy my skins*
+
 *I'm sensitive, please be mindful of that. My mood can change a lot, IWC is usually stated.*
 
 *For friends I know irl pls dont EVER use my irl name unless we're whispering*
