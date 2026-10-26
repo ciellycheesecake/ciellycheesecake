@@ -7,7 +7,7 @@
   
  *Ciel preferred*
   
-  *She/Her*
+  *She/They*
 
   *sp/so962*
 
