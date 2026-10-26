@@ -17,17 +17,19 @@
 
   ## $\color{#a7cbd1}{\textsf{Info ༉‧₊˚.}}$
 
-*Main fandoms: DANGANRONPA, KNY, DDLC*
+*INT: ppl who share the same or similar interests, fun extroverted ppl...(pls adopt me), good ppl in general idk what else to put here*
 
-*Multishipper!*
+*DNI: Racists, Homophobes, Predators and the rest of the basic dni criteria*
+
+*I love drawing, singing and playing my little musical instruments (that are not so little)*
+
+*Main Interests: Demon slayer, Death note, Danganronpa, Studio Investigrave, Typology, Malcolm Todd, Davvn, illit, etc...*
 
 *I do not accept random friend reqs, pls interact and get to know me b4 doing so*
 
-*Pls do NOT copy my skins*
-
 *I can be moody sometimes, please be mindful of that. IWC is usually stated.*
 
-*For friends I know irl pls dont EVER use my irl name on online platforms*
+*For friends who know me irl pls dont EVER use my irl name on online platforms*
 
 *Im either offt, s-afk or js with my oomfs so don't be afraid to whisper*
 
@@ -39,17 +41,13 @@
 
 ## $\color{#a7cbd1}{\textsf{Links ༉‧₊˚.}}$
 
-*More stuff on my new strawpage⬇⬇⬇*
+*More stuff on my strawpage⬇⬇⬇*
 
 https://zereciel.straw.page
 
 *Leave a msg!⬇⬇⬇*
 
 https://ciellycake.atabook.org
-
-*My names, pronouns, labels, etc.⬇⬇⬇ WIP!!!*
-
-https://pronouns.cc/@cciellycheesecake
 
 <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/c351dd90fc2be6aa8e05eef392c19fb38bbc3ac2/tumblr_21160aa7ebe565cad897a19a392a5d58_f16c28f3_75.webp" width="67">
 
