@@ -3,9 +3,7 @@
 
 ## $\color{#a7cbd1}{\textsf{Me ༉‧₊˚.}}$
 
- *Ciel/Cielly/Cici*
-  
- *Ciel preferred*
+ *This is Ciel~*
   
   *She/They*
 
