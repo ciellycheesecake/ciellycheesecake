@@ -9,9 +9,9 @@
   
   *She/Her*
 
-  *sp962*
+  *sp/so962*
 
-  *E-INFP*
+  *INFJ*
   
  *!MINOR!*
 
@@ -27,7 +27,7 @@
 
 *Pls do NOT copy my skins*
 
-*I'm sensitive, please be mindful of that. My mood can change a lot, IWC is usually stated.*
+*I can be moody sometimes, please be mindful of that. IWC is usually stated.*
 
 *For friends I know irl pls dont EVER use my irl name on online platforms*
 
