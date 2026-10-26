@@ -7,11 +7,11 @@
   
   *She/They*
 
+  *15! - 03.04*
+
   *sp/so962*
 
   *INFJ*
-  
- *!MINOR!-15 yo*
 
   <img src="https://github.com/ciellycheesecake/ciellycheesecake/blob/14f9d35f4a53d6e5528c8e98418ee87fcdfdcf47/tumblr_965b27135f5ebbeb470c0cec56428815_4603b59a_75.webp" width="67">
 
