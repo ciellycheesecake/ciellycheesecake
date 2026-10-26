@@ -23,17 +23,15 @@
 
 *Multishipper!*
 
-*Ragatha & Mitsuri kinnie*
-
 *I do not accept random friend reqs, pls interact and get to know me b4 doing so*
 
 *Pls do NOT copy my skins*
 
 *I'm sensitive, please be mindful of that. My mood can change a lot, IWC is usually stated.*
 
-*For friends I know irl pls dont EVER use my irl name unless we're whispering*
+*For friends I know irl pls dont EVER use my irl name on online platforms*
 
-*Im either offt, s-afk or js cuddling with my friends so don't be afraid to whisper*
+*Im either offt, s-afk or js with my oomfs so don't be afraid to whisper*
 
 *You may ask for my discord and roblox*
 
