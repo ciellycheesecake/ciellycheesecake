@@ -45,10 +45,6 @@
 
 https://zereciel.straw.page
 
-*Old strawpage!!⬇⬇⬇*
-
-https://meciel.straw.page
-
 *Leave a msg!⬇⬇⬇*
 
 https://ciellycake.atabook.org
