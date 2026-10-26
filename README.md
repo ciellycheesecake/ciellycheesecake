@@ -5,7 +5,7 @@
 
  *This is Ciel~*
   
-  *She/They*
+  *She/Her*
 
   *15! - 03.04*
 
