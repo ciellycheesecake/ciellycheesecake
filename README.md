@@ -25,6 +25,8 @@
 
 *Main Interests: Demon slayer, Death note, Danganronpa, Studio Investigrave, Typology, Malcolm Todd, Davvn, illit, etc...*
 
+*Pls do not copy or take inspiration of my skins* 
+
 *I do not accept random friend reqs, pls interact and get to know me b4 doing so*
 
 *I can be moody sometimes, please be mindful of that. IWC is usually stated.*
